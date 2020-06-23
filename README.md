@@ -1,3 +1,3 @@
-# starwars-names
+# HARRY POTTER -names
 
-For all your random Star Wars character needs
+For all your random Harry Potter character needs
